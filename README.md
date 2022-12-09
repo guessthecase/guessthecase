@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @guessthecase
-- 👀 I’m interested in learning new stuffs
+- ⭐ Hi, I’m @guessthecase
+- ⭐ I’m interested in learning new stuffs
